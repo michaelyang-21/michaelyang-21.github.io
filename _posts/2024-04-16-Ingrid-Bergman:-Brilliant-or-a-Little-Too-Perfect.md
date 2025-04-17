@@ -8,7 +8,7 @@ But here's my hot take — and maybe the only hot take on a Golden Age actress I
 
 That’s not to say she wasn’t talented. It’s just that her performances often feel like they’re operating at arm’s length. She makes you observe emotion rather than feel it with her. And when you actually start rewatching her films with that lens, the pattern becomes pretty hard to ignore.
 
-![Ingrid Bergman publicity photo for Notorious (1946)](/_posts/images/bergman-notorious-publicity-photo.jpg)
+![Ingrid Bergman publicity photo for Notorious (1946)](/_posts/images/bergman-notorious-publicity-photo.jpg?raw=true)
 
 <div style="text-align: center;">
   <img src="/_posts/images/bergman-notorious-publicity-photo.jpg" style="width:60%; max-width:400px;" />
