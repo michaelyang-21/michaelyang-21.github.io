@@ -1,1 +1,1 @@
-Welcome to my site. This website is currently a work-in-progress.
+Welcome to my site. Trader with a film hobby. Currently passionate about Classic Hollywood Cinema.
