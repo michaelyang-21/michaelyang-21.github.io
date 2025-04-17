@@ -1,5 +1,4 @@
 # 🎬 Ingrid Bergman: Brilliant, But a Little Too Perfect?
-*By Michael Y*
 
 In the pantheon of classic Hollywood actresses, few names are spoken with as much reverence as Ingrid Bergman. She’s a towering figure of cinematic elegance, known for her work in films like *Casablanca*, *Notorious*, and *Gaslight*. Her face, a perfect blend of serenity and strength, was the ideal canvas for Hollywood’s golden age lens. Her performances were technically stunning, her career storied, her reputation sterling.
 
