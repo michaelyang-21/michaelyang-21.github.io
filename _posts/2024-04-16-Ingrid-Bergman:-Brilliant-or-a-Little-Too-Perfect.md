@@ -14,6 +14,8 @@ That’s not to say she wasn’t talented. It’s just that her performances oft
     Ingrid Bergman publicity photo for <strong>Notorious</strong> (1946)
   </figcaption>
 </figure>
+
+![alt text](/images/bergman-notorious-publicity-photo.jpg){: style="width:200px; float:right;"}
 ---
 
 ## 🕯️ *Gaslight* (1944): Controlled Breakdown
