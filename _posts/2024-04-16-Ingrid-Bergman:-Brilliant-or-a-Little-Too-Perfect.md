@@ -49,7 +49,7 @@ To her credit, there are moments in this film where you glimpse what Bergman cou
 
 ## 🔥 Compared to Her Peers?
 
-Let’s be real: classic Hollywood was filled with actresses who knew how to burn on screen. **Vivien Leigh** (*A Streetcar Named Desire*, *Gone with the Wind*) could unravel with terrifying intensity. **Bette Davis** (*Now, Voyager*, *All About Eve*) could make a single line reading feel like a dagger. Even **Katharine Hepburn**, with all her quirky confidence, brought way more fire to her roles.
+Let’s be real: classic Hollywood was filled with actresses who knew how to burn on screen. Vivien Leigh (*A Streetcar Named Desire*, *Gone with the Wind*) could unravel with terrifying intensity. Bette Davis (*Now, Voyager*, *All About Eve*) could make a single line reading feel like a dagger. Even Katharine Hepburn, with all her quirky confidence, brought way more fire to her roles.
 
 Bergman, by contrast, often felt restrained. Her performances were elegant, even when the material demanded chaos. There’s a kind of unshakeable control to her — which, sure, can be impressive — but it makes her harder to emotionally connect with.
 
