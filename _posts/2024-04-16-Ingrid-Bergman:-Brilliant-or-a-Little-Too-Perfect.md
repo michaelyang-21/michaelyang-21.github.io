@@ -24,7 +24,7 @@ Let’s start with the film that won her her first Oscar — *Gaslight*. In it, 
 
 But instead of descending into raw instability, Bergman’s performance is almost *too* measured. Even at her lowest point, she doesn’t quite let the panic consume her. There’s a visible performance of fear — a furrowed brow, a tremble in her voice — but it still feels like she’s holding back. For a film that’s supposed to feel claustrophobic and maddening, her composure gives the movie a weird air of detachment.
 
-Compare that to someone like **Joan Fontaine in *Rebecca* (1940)** — similar “gaslighted wife” vibes — and you get a more visceral experience. Fontaine feels cornered, fragile, and terrified. Bergman? Still kind of looks like she’s ready for a magazine cover.
+Compare that to someone like Joan Fontaine in *Rebecca* (1940) — similar “gaslighted wife” vibes — and you get a more visceral experience. Fontaine feels cornered, fragile, and terrified. Bergman? Still kind of looks like she’s ready for a magazine cover.
 
 ---
 
@@ -34,7 +34,7 @@ This one’s going to hurt some people, but we have to talk about *Casablanca*. 
 
 The character is caught in one of the most famous love triangles in cinema history — torn between past love Rick (Bogart) and current husband Laszlo. Yet Bergman’s emotional presence in the film is strangely muted. Her facial expressions are often vague, her delivery soft and distant, and she spends a good chunk of the film looking confused, stunned, or wistful — but not much more.
 
-Look at the scene where Rick and Ilsa reunite at his bar. **Bogart’s face is burning** with regret, resentment, and bitterness. Bergman, meanwhile, kind of just stares. Or when she begs him to think for both of them at the airport — again, she’s saying all the right things, but the emotion is paper-thin. The love story relies heavily on the idea of their past, not the chemistry we’re seeing in the present.
+Look at the scene where Rick and Ilsa reunite at his bar. Bogart’s face is burning with regret, resentment, and bitterness. Bergman, meanwhile, kind of just stares. Or when she begs him to think for both of them at the airport — again, she’s saying all the right things, but the emotion is paper-thin. The love story relies heavily on the idea of their past, not the chemistry we’re seeing in the present.
 
 Honestly, Ilsa sometimes feels like a character that things happen *to* rather than someone who acts with emotional agency.
 
@@ -63,7 +63,7 @@ Bergman, by contrast, often felt restrained. Her performances were elegant, even
 None of this is to say Ingrid Bergman wasn’t talented. She absolutely was. But I do think we sometimes conflate *technical precision* with *emotional resonance*. And for me, Bergman falls into that uncanny valley where I respect her performances more than I feel them.
 
 She was magnetic. She was refined. She was beautiful.  
-But did she ever really **bleed** on screen?
+But did she ever really bleed on screen?
 
 That’s up for debate. And in my case, it’s a soft but confident *no*.
 
