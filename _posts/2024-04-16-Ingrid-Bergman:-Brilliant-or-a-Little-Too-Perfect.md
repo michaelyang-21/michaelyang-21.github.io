@@ -14,7 +14,7 @@ That’s not to say she wasn’t talented. It’s just that her performances oft
   <img src="/images/bergman-notorious-publicity-photo.jpg" style="width:60%; max-width:400px;" />
   <p style="font-size: 0.9em; color: #555;">Ingrid Bergman publicity photo for <em>Notorious</em> (1946)</p>
 </div>
-test
+test test
 
 ---
 
