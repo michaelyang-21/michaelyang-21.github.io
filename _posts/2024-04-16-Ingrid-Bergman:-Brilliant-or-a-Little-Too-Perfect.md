@@ -1,4 +1,4 @@
-# 🎬 Why Ingrid Bergman’s Beauty Sometimes Feels Too Perfect?  
+# Why Ingrid Bergman’s Beauty Sometimes Feels Too Perfect?  
 
 Ingrid Bergman is often spoken about with a kind of untouchable reverence when it comes to classic Hollywood. And don’t get me wrong — she was brilliant. She had that rare blend of international flair, quiet beauty, and real acting chops. She’s got some absolute classics under her belt: *Casablanca* (1942), *Notorious* (1946), *Gaslight* (1944), and even later works like *Autumn Sonata* (1978). She won three Oscars, worked with Hitchcock, and pretty much defined “timeless elegance.”
 
