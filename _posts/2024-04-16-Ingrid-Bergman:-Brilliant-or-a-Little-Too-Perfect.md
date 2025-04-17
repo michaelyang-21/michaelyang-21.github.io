@@ -37,10 +37,6 @@ Part of this might come down to how she was cast. Bergman was often framed as th
 
 She rarely got “messy” on screen. Compare her to someone like **Vivien Leigh** in *A Streetcar Named Desire* — that performance is brutal. It’s unhinged and raw and borderline uncomfortable to watch. Or **Bette Davis**, who could weaponize emotion like no one else. With them, you feel the blood under the skin. With Bergman, you get porcelain — beautiful, delicate, and cool to the touch.
 
----
-
-## 🎤 Final Thoughts
-
 To be clear: Ingrid Bergman *was* great. She changed the game. She was graceful, intelligent, and had a filmography that most actors would kill for.
 
 But **greatness doesn’t have to mean untouchable**. And it’s okay to admit that sometimes, her perfection came at the cost of passion. That in a lineup of legendary leading ladies, she often felt like the one keeping a part of herself hidden — just out of reach.
