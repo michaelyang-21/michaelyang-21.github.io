@@ -1,1 +1,1 @@
-Welcome to my site. Trader with a film hobby. Currently passionate about Classic Hollywood Cinema.
+I’m an engineer by day, but when I’m not tinkering with tech, you’ll find me writing about something, watching an old Hollywood classic, or debating whether Bogart or Gable is the true king of the silver screen. Right now, I’m diving deep into classical Hollywood cinema — because let's be real, who doesn't love a good black-and-white melodrama, right?
