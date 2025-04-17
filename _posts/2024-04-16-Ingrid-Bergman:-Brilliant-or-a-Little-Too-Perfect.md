@@ -50,7 +50,7 @@ Bergman, by contrast, often felt restrained. Her performances were elegant, even
 
 ---
 
-## 🎤 Final Thoughts
+## And So Let's Circle Back
 
 None of this is to say Ingrid Bergman wasn’t talented. She absolutely was. But I do think we sometimes conflate *technical precision* with *emotional resonance*. And for me, Bergman falls into that uncanny valley where I respect her performances more than I feel them.
 
