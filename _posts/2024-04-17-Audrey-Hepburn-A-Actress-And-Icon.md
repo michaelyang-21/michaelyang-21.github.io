@@ -4,6 +4,11 @@ When people hear the name Audrey Hepburn, the first images that come to mind are
 And yes — her fashion legacy is untouchable. But too often, that style-icon status overshadows something arguably more important: Audrey Hepburn could really act.
 It’s easy to reduce her to a visual archetype, but Audrey’s career is full of emotionally layered performances, comedic timing, and quiet resilience. She wasn’t just a mannequin for haute couture — she brought intelligence, depth, and vulnerability to her roles in a way that’s still remarkably resonant.
 
+<div style="text-align: center;">
+  <img src="/images/audrey-hepburn.jpg" style="width:60%; max-width:400px;" />
+  <p style="font-size: 0.9em; color: #555;">Audrey Hepburn</p>
+</div>
+
 ## Escaping Royalty: Audrey Hepburn’s Dazzling Debut
 
 When you think about iconic Hollywood debuts, it’s impossible not to mention Audrey Hepburn in *Roman Holiday* (1953). It wasn’t just her first starring role — it was a performance that won her an Academy Award, launched her into international stardom, and reshaped what audiences expected from a female lead. But beyond the glamour and acclaim, what makes Hepburn’s turn as Princess Ann in *Roman Holiday* so unforgettable is its emotional intelligence, subtlety, and naturalism. It’s not just a “star is born” moment — it’s an acting masterclass.
