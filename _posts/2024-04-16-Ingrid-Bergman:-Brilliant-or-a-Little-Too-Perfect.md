@@ -13,7 +13,6 @@ That’s not to say she wasn’t talented. It’s just that her performances oft
   <p style="font-size: 0.9em; color: #555;">Ingrid Bergman publicity photo for <em>Notorious</em> (1946)</p>
 </div>
 
----
 
 ## 🕯️ *Gaslight* (1944): Controlled Breakdown
 
@@ -22,8 +21,6 @@ Let’s start with the film that won her her first Oscar — *Gaslight*. In it, 
 But instead of descending into raw instability, Bergman’s performance is almost *too* measured. Even at her lowest point, she doesn’t quite let the panic consume her. There’s a visible performance of fear — a furrowed brow, a tremble in her voice — but it still feels like she’s holding back. For a film that’s supposed to feel claustrophobic and maddening, her composure gives the movie a weird air of detachment.
 
 Compare that to someone like Joan Fontaine in *Rebecca* (1940) — similar “gaslighted wife” vibes — and you get a more visceral experience. Fontaine feels cornered, fragile, and terrified. Bergman? Still kind of looks like she’s ready for a magazine cover.
-
----
 
 ## 🕊 *Casablanca* (1942): The Most Passive Love Triangle Ever?
 
@@ -35,8 +32,6 @@ Look at the scene where Rick and Ilsa reunite at his bar. Bogart’s face is bur
 
 Honestly, Ilsa sometimes feels like a character that things happen *to* rather than someone who acts with emotional agency.
 
----
-
 ## 🥂 *Notorious* (1946): A High-Stakes Romance, But Where’s the Heat?
 
 *Notorious* is probably her most emotionally layered Hollywood role — she plays Alicia Huberman, a party girl turned spy who falls in love with Devlin (Cary Grant) while being sent on a dangerous mission. There’s a lot of emotional territory to explore here: guilt, longing, fear, betrayal.
@@ -45,17 +40,14 @@ And yet again, Bergman plays it with this air of elegance that borders on detach
 
 To her credit, there are moments in this film where you glimpse what Bergman could do if she pushed herself — the wine cellar scene, for instance, is genuinely tense. But even there, her emotions are so internalized that they almost get lost in the scenery.
 
----
-
 ## Compared to Her Peers?
 
 Let’s be real: classic Hollywood was filled with actresses who knew how to burn on screen. Vivien Leigh (*A Streetcar Named Desire*, *Gone with the Wind*) could unravel with terrifying intensity. Bette Davis (*Now, Voyager*, *All About Eve*) could make a single line reading feel like a dagger. Even Katharine Hepburn, with all her quirky confidence, brought way more fire to her roles.
 
 Bergman, by contrast, often felt restrained. Her performances were elegant, even when the material demanded chaos. There’s a kind of unshakeable control to her — which, sure, can be impressive — but it makes her harder to emotionally connect with.
 
----
 
-## And So Let's Circle Back
+## And So Circling Back
 
 None of this is to say Ingrid Bergman wasn’t talented. She absolutely was. But I do think we sometimes conflate *technical precision* with *emotional resonance*. And for me, Bergman falls into that uncanny valley where I respect her performances more than I feel them.
 
