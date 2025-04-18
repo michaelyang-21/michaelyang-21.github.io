@@ -32,6 +32,12 @@ Look at the scene where Rick and Ilsa reunite at his bar. Bogart’s face is bur
 
 Honestly, Ilsa sometimes feels like a character that things happen *to* rather than someone who acts with emotional agency.
 
+<div style="text-align: center;">
+  <img src="/images/bergman-and-bogart-casablanca.jpg" style="width:60%; max-width:400px;" />
+  <p style="font-size: 0.9em; color: #555;">Ingrid Bergman in <em>Casablanca</em> (1942)</p>
+</div>
+
+
 ## 🥂 *Notorious* (1946): A High-Stakes Romance, But Where’s the Heat?
 
 *Notorious* is probably her most emotionally layered Hollywood role — she plays Alicia Huberman, a party girl turned spy who falls in love with Devlin (Cary Grant) while being sent on a dangerous mission. There’s a lot of emotional territory to explore here: guilt, longing, fear, betrayal.
